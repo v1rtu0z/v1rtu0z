@@ -1,1 +1,1 @@
-Find me on Patreon at https://www.patreon.com/v1rtu0z
+Find me on LinkedIn at linkedin.com/in/Nikola-Mandić
